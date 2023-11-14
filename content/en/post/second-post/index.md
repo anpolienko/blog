@@ -60,19 +60,7 @@ Today, tonic features less quinine than past products, and it has a sweeter tast
 - 6 ounces tonic water (you can use 4 ounces for stronger flavour)
 - Garnish: 2 lime wheels or other seasonal garnishes you may prefer
 
-**Steps:**
-
-To make mulled wine, simply…
-
-1. Combine ingredients. Combine all ingredients in a saucepan and give them a quick stir.
-1. Simmer. Heat until the wine almost reaches a simmer over medium-high heat. (Avoid letting it bubble in any way. Alcohol begins to vaporize at 172°F, so take care to ensure that the wine does not evaporate.)  Reduce heat to low, cover completely, and let the wine simmer for at least 15 minutes or up to 3 hours.
-1. Strain and season. Using a fine mesh strainer, remove and discard the orange slices, cloves, cinnamon sticks, star anise and ginger. Give the mulled wine a taste, and stir in your desired amount of extra sweetener if needed.
-1. Serve. Serve warm in heatproof mugs, topped with your favorite garnishes.
-Full ingredient amounts/instructions listed in the recipe below.
-
-**POSSIBLE VARIATIONS:**
-
-Want to customize this mulled wine a bit? Feel free to…
+**STEPS:**
 
 1. Fill a highball glass with ice, then add the gin.
 1. Top with the tonic water and gently stir.
